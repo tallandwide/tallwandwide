@@ -1,4 +1,4 @@
-# Hi, I'm tallandwide 👋
+# Hi, I'm Kennet 👋
 
 🎓 Software Development student at Tallinna Tehnoloogiakolledž
 
